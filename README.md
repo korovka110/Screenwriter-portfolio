@@ -78,5 +78,5 @@
 ***
 
 ## Контакты:
-Email: aa-otz@mail.ru
+Email: korovka110@gmail.com
 Тел., +79991771023
